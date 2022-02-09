@@ -2,5 +2,5 @@
 - 👀 I’m interested in men 
 - 🌱 I’m currently learning how to become a sheep  
 - 💞️ I’m looking to collaborate on makeing meth 
-- 📫 How to reach me the warp is all consumeing and I am but its slave if you reach salvation you will reach me 
+- 📫 How to reach me you will not the warp is all consumeing and I am but its slave if you reach salvation you will reach me 
 - 💕 I like to ski 
